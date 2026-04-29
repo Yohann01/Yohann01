@@ -5,5 +5,3 @@
 <br>
 
 - 📫 How to reach me **johann.desepedac@gmail.com**
-
-- ⚡ Fun fact **Sometimes I likes to play nerdy games**
